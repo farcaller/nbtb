@@ -15,3 +15,7 @@ This book wouldn't exist without a friendly community of tulpae.ru and tulpa IRC
 ## Contributions
 
 There's a [TODO list](TODO.todo) with some ideas. Get in touch.
+
+# Copying and sharing this work
+
+The license above governs the process of using this work. As a personal appeal, I would highly recommend to use the link to gitbook instead of copying the text, as it will evolve further and your copy might get stale. This also applies to translations, gitbook supports them natively, so if you want to translate NBTB, get in touch and we will figure out the best way to do it.
