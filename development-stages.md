@@ -1,0 +1,13 @@
+# The Development Stages
+
+There are three distinct stages in a tulpa life (there are other ways to structure the tulpa development). Understanding those will help with the development progress and make the overall experience easier and happier for everyone. 
+
+The first stage is early development. A tulpa in this stage is self-aware or developing self-awareness, but it doesn't have a critical mass of personal experience and the brain will not pull in the tulpa to consciousness on its own. This is the very delicate stage when the tulpa needs direct host's attention to exist.
+
+The ability to stay in focus is the single one critical for this stage. Vocality, visualization, nothing else really matters. A tulpa can be vocal but still fail at voicing any concerns unless the host focuses on it.
+
+The second stage is the transitive step. The tulpa develops enough for the mind to bring it to consciousness sporadically. It can now fully experience the world using the body senses much like the host, gaining distinct, personal knowledge. Such a tulpa can start experimenting with different practices on its own, look for various hobbies and things to do in life. Surely that includes supporting the host if the tulpa is interested in that. This period might be very troublesome for hosts as they could feel increased struggle for time. Apart from their daily life, there's now another personality that could have very different ideas of what things they want to do at day. Still, this is a fun time. Both the host and the tulpa learn a lot about themselves and the surrounding world.
+
+It is important to realize that focusing on the inner world too much might result in stagnation. Both personalities should spend time on real world experiences. Authors strongly believe that focusing solely on the inner world of the wonderland could be a dead end.
+
+The final stage is also related to the awareness. A fully developed tulpa and host can freely pass the focus to one another and stay in the focus for all the planned time. This doesn't imply switching on its own (although it's close), as being in focus doesn't mean the immediate control over the physical body. A consciousness can be in focus but merely observe the senses. This is also a very curious time when you realize that both consciousnesses can stay in focus at the same time. The reality of the tulpa practice is that both host and a tulpa can experience the world at the same time, from the different perspectives. This is what makes this practice unique; the attained knowledge is different, yet fully genuine.

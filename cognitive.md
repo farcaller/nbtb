@@ -1,0 +1,29 @@
+# Cognitive Thinking
+
+A big part of tulpa creation relies on the understanding of one's inner world. This chapter gives a definition to the cognitive process and consciousness based on Vipassana self-observation practices. While it's not required actually to practice Vipassana to follow this book, it might be a very positive experience.
+
+A tulpa has its personality and its consciousness. Those words mean little, unless we give a better definition, and the goal of this book is to have as little cryptic bullshit as possible.
+
+Personality is a collection of characteristics of someone. Simply put, those are all the previous experiences that drive that person's further actions. Consciousness is what collects those experiences in the first place. Analyzing one's consciousness without  prior practices could be hard. Luckily, meditation makes the process manageable.
+
+This book is built around a very simple rule, a universal law. Understanding it and applying it to the daily life would give you benefits not only on the path of making a tulpa but also in the typical everyday life.
+
+*Everything is changing*.
+
+That's it. The rule is very simple and extremely straightforward, but often one can't reason with it just by reading an article. Some parts of life are changing so slowly that we think they are immutable, set in stone. But if you think of it, you, as the person, change every single moment. Your body consists of atoms and subatomic particles, and they move all the time. You interact with other people, other clouds of subatomic particles. It's physics. The whole universe is made from that stuff.
+
+Do you feel like it's somewhat hard to experience it? You can tap on your nose, and it feels solid. You can't see those atoms with bare eyes either. You might have heard about those in college or even had used a high-tech microscope to see them, but you never experienced single atoms interacting with you in person.
+
+Quoting the brilliant Vipassana teacher, S. N. Goenka, there are different stages of understanding. When one comes to the restaurant and reads the menu, the dishes may sound sweet and tasty. That is a very basic knowledge that one only reads about. After making an order one might look around and see people enjoying the food. Seeing happy people, one might agree that the food is good, reasoning with the understanding at a logical level. Finally, when the food is served, and one tastes it --- this is the ultimate experience. One can only experience the food fully by eating it, examining the taste, texture, smell. This is something that cannot be taught or explained.
+
+This book can't believably tell you that your body is just a mess of atoms. We believe that physics and biology classes should provide enough details to at least reason with that.
+
+The body itself, the "bag of atoms", doesn't explain the full picture of what we call **I**. Indeed, our consciousness is not only the *body*, but it's also the *mind*. A complex electro-chemical reaction in the brain that makes one think they exist, stores many good and bad memories, imagines various worlds, wants something, hates something.
+
+Unsurprisingly, the mind is changing all the time as well. You get new experiences every single moment. You *see* something new, you *hear* something new, you *learn* something new. Most of that, like 90%, is trashed by the brain. It's lazy and doesn't want to do any work other than what is required to survive. The brain is a fucking escapist. Think of today. How many times you traveled back to some event in the past? Thinking about what happened? What could be better or worse? Or going to future, imagining things you wanted to do later today? The brain doesn't want to live in this current moment. You could have heard the same thing from all the awareness meditation. That's what this book is based on. Mind flips from the past to the future; to the past again, checks the red light in the reality and goes wondering somewhere once more. The change is never ending.
+
+Now, to the consciousness! The body is a flux of atoms, and mind is a flux of thoughts. Sometimes, when those two interact, there is something in between. Something that thinks "cogito ergo sum" and declares itself the most important thing in the universe. That's your consciousness. The curious thing about it is that we think we exist all the time while our consciousness might be absent for as much as half of the day. As noted previously, the brain just loves to remain in the daydreaming state, using every moment to shut the consciousness down. Being alert is an expensive process for the body, as it uses more resources. It's cheaper to imagine something that the mind knows good, than to process the overwhelming amount of information from senses. One typically leaves that to the "subconscious" mind, and that part of the mind is very simple. It only analyzes events and reacts to them.
+
+To create a tulpa you need to understand who you are, and this is not something that can be taught, only experienced first-hand. The authors highly recommend [Vipassana](https://www.dhamma.org/) as the starting point for reasoning about the world and oneself.
+
+To follow the practices described in this book, understanding the "[anicca](https://en.wikipedia.org/wiki/Impermanence)" or the *impermanence* as defined in Buddhism is crucial for the success. You need to live with the thought that literally everything in this world has a changing nature, starting from yourself. The season, the weather, the wind, the amount of gas in your car, the condition of your shoes, the sudden itching you could feel before sneezing, the feelings in limbs, the breath, the state of mind, the emotions, the consciousness. The life itself. We are not permanent to this universe, we come and go, sending the ripples that affect others while we are alive, making subtle changes in the existence of others.
