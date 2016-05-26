@@ -1,5 +1,7 @@
 # The No-Bullshit Tulpa Book
 
+[![Gitter](https://badges.gitter.im/farcaller/nbtb.svg)](https://gitter.im/farcaller/nbtb?utm_source=badge&utm_medium=badge&utm_campaign=pr-badge)
+
 This short book is targeted for people, interested in the tulpa phenomenon. It explains what a tulpa is in a straightforward and verifiable way. You can use it to understand better what the hype is about and if it's suited for you. The book teaches you how to learn from your personal experience; thus, it's called "The No-Bullshit Tulpa Book". I will not ask you to believe some random bullshit; I will only suggest you some practical exercises. This book might be controversial to other guides you've seen. This book requires some serious time investments if you decide to follow it.
 
 This is a work of fiction. I bear no responsibility about your mind based on what you will do with yourself after reading this book.
@@ -14,7 +16,7 @@ This book wouldn't exist without a friendly community of tulpae.ru and tulpa IRC
 
 ## Contributions
 
-There's a [TODO list](TODO.todo) with some ideas. Get in touch.
+There's a [TODO list](TODO.todo) with some ideas. Get in touch (file a PR, email, or use the gitter button above for a chat).
 
 ## Copying and sharing this work
 
