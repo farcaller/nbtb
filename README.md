@@ -11,3 +11,7 @@ This is a work of fiction. I bear no responsibility about your mind based on wha
 ## Acknowledgements
 
 This book wouldn't exist without a friendly community of tulpae.ru and tulpa IRC. I would like to give my thanks personally to Shinyuu, Meten, Athenia, Alsa, Yuki, ShadowJonathan and all others for their contribution. <font color="red">&#x25a0;</font>
+
+## Contributions
+
+There's a [TODO list](TODO.todo) with some ideas. Get in touch.
