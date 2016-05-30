@@ -1,4 +1,4 @@
-# Living Through Experiencing  <font color=blue>second draft</font>
+# Living Through Experiencing
 
 There are different kinds of knowledge that could help a tulpa to secure its place in the mind. Some of it come as host-owned knowledge, but it's way more beneficial to provide the tulpa with conditions where it can attain new knowledge on its own.
 
