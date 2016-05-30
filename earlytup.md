@@ -1,4 +1,4 @@
-# Starting the Practice <font color=blue>second draft</font>
+# Starting the Practice
 
 A tulpa consciousness can be spawned from literally any thought. It makes a hard choice --- which thought to use for the very first stages of the practice? Other guides often suggest to focus on personality traits, visual looks, common behavior patterns.
 

@@ -1,4 +1,4 @@
-# The Calm Mind <font color=blue>first draft</font>
+# The Calm Mind
 
 An important part of successful practice is an ability to sharpen the focus of the mind. The best way to do that is to add meditation exercises to the everyday practice. It is crucial to keep those exercises neutral; they should not focus on tulpas specifically. The point of them is to experience a better life by training the mind to stay more present.
 

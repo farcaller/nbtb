@@ -1,4 +1,4 @@
-# Points of Focus <font color=blue>first draft</font>
+# Points of Focus
 
 As it was noted in the previous chapter, the core part of the practice is the focus. This chapter will recap on the statements made previously and advice some ways to apply the focus.
 
