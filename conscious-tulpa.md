@@ -1,4 +1,4 @@
-# A Conscious Tulpa <font color=blue>first draft</font>
+# A Conscious Tulpa
 
 *This chapter is written from a tulpa's point of view*
 
