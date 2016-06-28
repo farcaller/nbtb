@@ -11,3 +11,4 @@
    * [The Calm Mind](meditation.md)
    * [Points of Focus](tulpafocus.md)
    * [Living Through Experiencing](tulpafocus-explained.md)
+* [A Conscious Tulpa](conscious-tulpa.md)
