@@ -1,7 +1,8 @@
 {
   "title": "No-bullshit Tulpa Book",
   "plugins": [
-    "ga"
+    "ga",
+    "typogr"
   ],
   "pluginsConfig": {
     "ga": {

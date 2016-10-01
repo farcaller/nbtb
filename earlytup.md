@@ -1,6 +1,6 @@
 # Starting the Practice
 
-A tulpa consciousness can be spawned from literally any thought. It makes a hard choice --- which thought to use for the very first stages of the practice? Other guides often suggest to focus on personality traits, visual looks, common behavior patterns.
+A tulpa consciousness can be spawned from literally any thought. It makes a hard choice---which thought to use for the very first stages of the practice? Other guides often suggest to focus on personality traits, visual looks, common behavior patterns.
 
 This practice consists of a few meditation exercises. Unlike the popular image, meditation isn't all sitting in a lotus pose, reciting prayers or focusing on chakras. Simply speaking, meditation is an exercise for your mind.
 
